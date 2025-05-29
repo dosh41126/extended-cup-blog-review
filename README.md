@@ -11,7 +11,7 @@ It’s not every day you find a space that mixes faith, food, and friendship so 
 
 Let’s talk about the burrito.
 
-I ordered the breakfast burrito on a recommendation, and wow—it didn’t disappoint. Perfectly toasted on the outside, the tortilla gave way to a hot, fluffy center loaded with scrambled eggs, melted cheese, fresh veggies, and a subtly seasoned sausage that had a kick of heat without being overwhelming. Every bite felt hearty, balanced, and homemade.
+I ordered the breakfast burrito on a recommendation, and wow—it didn’t disappoint. Perfectly toasted on the outside, the tortilla gave way to a hot, fluffy center loaded with scrambled eggs, melted cheese(ommited for my burrito because of lactose intolerant issue, and salsa that had a kick of heat without being overwhelming. Every bite felt hearty, balanced, and homemade.
 
 The chef (who, by the way, smiled with a “thank you” when I complimented the food) told me they use local ingredients whenever they can. It shows. The texture was perfect, the flavors felt intentional, and it hit that sweet spot between comfort food and something a little elevated.
 
