@@ -1,6 +1,6 @@
 
 Community, Coffee, and a Killer Breakfast Burrito: A Morning at Extended Cup
-
+![Breakfast Burrito at Extended Cup](https://raw.githubusercontent.com/dosh41126/extended-cup-blog-review/refs/heads/main/burrito.jpg)
 There’s something special about places that blur the lines between coffee shop, community center, and something greater. Tucked away in a quiet corner of Easley, South Carolina, Extended Cup is more than just a breakfast spot—it’s a small miracle brewed with espresso, served with a smile, and wrapped in a warm tortilla.
 
 You’ll find this hidden gem at 1954 East Main Street, Easley, South Carolina, nestled within what looks like a small church from the outside. But the moment you step inside, it’s like you’ve entered another world. Sunlight pours in through big windows, bouncing off exposed wooden beams and rows of comfortable tables. The smell of fresh coffee and sizzling breakfast fills the air, blending with the soft hum of conversation and indie music.
