@@ -15,8 +15,6 @@ I ordered the breakfast burrito on a recommendation, and wow—it didn’t disap
 
 The chef (who, by the way, smiled with a “thank you” when I complimented the food) told me they use local ingredients whenever they can. It shows. The texture was perfect, the flavors felt intentional, and it hit that sweet spot between comfort food and something a little elevated.
 
-And yes, the coffee? Stellar. I had a smooth Americano—bold, not bitter—and brewed with care. They roast their beans in-house, or at least work with a local roaster who knows what they’re doing. It was the kind of cup that makes you want to slow down and actually taste the morning.
-
 ## Local Vibes, Lasting Impact
 
 What struck me most wasn’t just the food or the coffee—it was the people. Everyone I interacted with—from the barista to the cook to the person sweeping the floor—genuinely seemed to love being there. They weren’t just doing their jobs; they were part of something they believed in.
